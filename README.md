@@ -1,0 +1,1 @@
+# Nubia_Z9_Mini-NX511J-
